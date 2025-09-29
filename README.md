@@ -1,5 +1,5 @@
 1.2
 DOPE SUPER COOL MCW10 UNLOCKING TOOL
-not available yet
+gofile.io/d/xg7NXV
 av
 nodisc
