@@ -1,5 +1,5 @@
 1.2
-DOPE SUPER COOL MC UNLOCKER
+Cool title
 gofile.io/d/xg7NXV
 av
 nodisc
