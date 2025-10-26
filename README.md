@@ -1,5 +1,5 @@
 1.3
-Cool title
+MCW10 UNLOCK
 no
 enabled
 no
